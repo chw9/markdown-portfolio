@@ -1,0 +1,1 @@
+![image of dog](https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwius9PQ0uPdAhUhnuAKHWSqAKgQjRx6BAgBEAU&url=http%3A%2F%2Fmentalfloss.com%2Farticle%2F65600%2F10-warm-facts-about-huskies&psig=AOvVaw3S_s-sIKJ1gwQq763hj7kw&ust=1538428409572173)
